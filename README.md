@@ -1,4 +1,3 @@
-SIemen Gay
-Siemen gay tai
+Siemen tai suka Stevanus
 
-tes lewat vscode
+Siemen tai
