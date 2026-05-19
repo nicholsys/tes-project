@@ -1,2 +1,1 @@
-SIemen Gay
-Siemen gay tai
+Kontol
